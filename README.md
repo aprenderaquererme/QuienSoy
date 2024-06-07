@@ -1,3 +1,6 @@
+Mónica Vidal Gutiérrez: 
+〰🌿Justicia Disca, Neurodiversidad, y Auti-Cuidado🌿〰
+
 📋 Publico contenido en varios lugares como @aprenderaquererme, mi nombre es Mónica Vidal Gutiérrez
 
 👀 Me interesan: 
