@@ -21,6 +21,4 @@ Mónica Vidal Gutiérrez:
 
 🧶 Busco tejer comunidades discas, interseccionales, autosostenibles y de ayuda mutua... y hoy la socialización, incluso escrita, está demandando mucha energía de mí
 
-😄 Pronombre: ella
-
-⚡ Hoy me pregunto: ¿Sigo siendo activista si mi lucha social está menos visiblemente activa y más "miceliar"?
+⚡ Hoy me pregunto: ¿Sigo siendo "activista" si mi trabajo es menos visiblemente activo y más "miceliar"?
