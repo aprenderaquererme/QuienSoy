@@ -7,6 +7,5 @@
 - ⚡ Hoy me pregunto: ¿Sigo siendo activista si mi lucha social está menos visiblemente activa y más "miceliear"?
 
 <!---
-aprenderaquererme/aprenderaquererme is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+aprenderaquererme/aprenderaquererme es un repostitorio ✨ especial ✨ porque su `README.md` (este archivo) aparece en tu perfil de GitHub.
 --->
