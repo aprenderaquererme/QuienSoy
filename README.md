@@ -5,11 +5,11 @@ Mónica Vidal Gutiérrez:
 
 👀 Me interesan: 
 
-〰🌿la justicia disca
+〰🌿la justicia disca, el anticapacitismo y el antipunitivismo
 
 〰🌿el autismo (desde paradigmas sociopolíticos)
 
-〰🌿la neurodiversidad ♾️ (que en realidad está lejos de la versión que desde modelo psicomédico se ha apropiado, reduccionado y diluido)
+〰🌿la neurodiversidad ♾️ (que en realidad está lejos de la versión que de la que se han apropiado y han diluido desde el modelo psicomédico)
 
 〰🌿el trabajo psicocorporal y somático como herramienta de desarrollo personal 
 
@@ -19,6 +19,6 @@ Mónica Vidal Gutiérrez:
 
 🌱 Estoy aprendiendo de solarpunk, decolonización, hidroponía, semi-hidroponía, crochet, IFS
 
-🧶 Busco tejer comunidades discas, interseccionales, autosostenibles y de ayuda mutua... y hoy la socialización, incluso escrita, está demandando mucha energía de mí
+🧶 Busco tejer comunidades discas, interseccionales, autosostenibles y de ayuda mutua... y hoy la socialización, incluso escrita, está demandando mucha energía de mí, una barrera para avanzar en este tema...
 
 ⚡ Hoy me pregunto: ¿Sigo siendo "activista" si mi trabajo es menos visiblemente activo y más "miceliar"?
