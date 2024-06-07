@@ -1,6 +1,6 @@
-👋 Escribo en varios lugares como @aprenderaquererme, mi nombre es Mónica Vidal Gutiérrez
+📋 Publico contenido en varios lugares como @aprenderaquererme, mi nombre es Mónica Vidal Gutiérrez
 
-👀 Me interesan 
+👀 Me interesan: 
 
 〰🌿la justicia disca
 
