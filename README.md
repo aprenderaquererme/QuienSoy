@@ -6,7 +6,7 @@
 
 〰🌿el autismo (desde paradigmas sociopolíticos)
 
-〰🌿la neurodiversidad ♾️ (que está lejos de la ──ahora popular── versión apropiada, reduccionada y diluida por el modelo psicomédico)
+〰🌿la neurodiversidad ♾️ (que en realidad está lejos de la versión que desde modelo psicomédico se ha apropiado, reduccionado y diluido)
 
 〰🌿el trabajo psicocorporal y somático como herramienta de desarrollo personal 
 
